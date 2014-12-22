@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A LEARNED DISCOVERSE OF IVSTIFICATION, WORKES, and how the foundation of faith is over throwne.By RI
+
 1. TO THE CHRISTIAN READER.
 
 #####Body#####
